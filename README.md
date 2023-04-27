@@ -1,1 +1,0 @@
-# sevibogdanov.github.io
